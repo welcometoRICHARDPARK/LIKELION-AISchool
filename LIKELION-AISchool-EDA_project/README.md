@@ -1,0 +1,1 @@
+# LIKELION-AISchool---EDA_mini_project
